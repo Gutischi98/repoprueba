@@ -2,5 +2,5 @@
 
 
 
-\##uwu \* se sonroja \*
+rule 34 Paty Maldonado owo
 
