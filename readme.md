@@ -1,3 +1,6 @@
-#** Clase de git **
+\#\*\*Clase de git\*\*  
 
-##Si leen esto, les gusta el pico
+
+
+\##Si leen esto, kast chupalo
+
