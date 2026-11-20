@@ -1,4 +1,4 @@
-\#\*\*Clase de git\*\*
+Clase de git
 
 
 
