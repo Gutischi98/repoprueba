@@ -2,5 +2,6 @@
 
 
 
-\##Si leen esto, kast chupalo
+\##Si leen esto, CHupen la palanca
+
 
